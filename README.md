@@ -1,1 +1,1 @@
-# Ardent-Computech-Pvt.-Ltd.-Internship-Certificate
+# All internship Certificates.
